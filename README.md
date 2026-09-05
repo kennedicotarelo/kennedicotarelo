@@ -1,1 +1,1 @@
-![image](https://raw.githubusercontent.com/kennedicotarelo/kennedicotarelo/refs/heads/main/montparnasse.jpg)
+![image](https://raw.githubusercontent.com/kennedicotarelo/kennedicotarelo/refs/heads/main/pitiless.jpg)
